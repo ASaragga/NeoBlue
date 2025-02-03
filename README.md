@@ -1,0 +1,1 @@
+This course offers a comprehensive exploration of finance, covering three crucial areas: Business Valuation, Financial Markets and Products, and Risk Management. Participants will learn how to assess the intrinsic value of a company, understand the dynamics of various financial markets, and gain the skills to effectively manage financial risks.
